@@ -1,7 +1,7 @@
 
 
 
-I'm a self-taught passionate Blockchain developer from China.
+I'm a Blockchain developer from China.
 
 **About me**
 
