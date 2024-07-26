@@ -1,7 +1,7 @@
 
 
 
-I'm a Blockchain developer from China.
+
 
 **About me**
 
