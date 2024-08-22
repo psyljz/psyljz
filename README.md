@@ -2,7 +2,7 @@
 
 **About me**
 
-design and build app on blockchain.
+ Ξ design and build app on blockchain.
 
   
 
